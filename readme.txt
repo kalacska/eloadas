@@ -1,5 +1,6 @@
-3. elıad·s
+3. el√µad√°s
 
-Ez a fejlesztÈs nagyon jÛ lesz.
+Ez a fejleszt√©s nagyon j√≥ lesz.
 
-M·r nagyon izgulok.
+M√°r nagyon izgulok.
+Lassan v√©ge az √≥r√°nak.
